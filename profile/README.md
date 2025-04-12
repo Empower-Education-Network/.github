@@ -23,7 +23,7 @@ A leading platform offering:
 
 ## Contact
 
-For inquiries or more information about our products and services, please visit [www.een.org](https://www.een.org) or email [info@een.org](mailto:info@een.org).
+For inquiries or more information about our products and services, please visit [www.empowereducationnetwork.org](https://www.empowereducationnetwork.org) or email [info@empowereducationnetwork.org](mailto:info@empowereducationnetwork.org).
 
 ---
 
